@@ -1,0 +1,2 @@
+Link di origine: https://wikilab.myhumankit.org/index.php?title=Projets:BrailleRAP-SP
+GitHub: https://github.com/MarlinFirmware/Marlin; https://github.com/arthursw/BrailleRap
