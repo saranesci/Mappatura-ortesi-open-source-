@@ -1,0 +1,1 @@
+OT student project : smartphone USB plug helper / aide au branchement de cable USB by Pole_ergo on Thingiverse: https://www.thingiverse.com/thing:2137825
