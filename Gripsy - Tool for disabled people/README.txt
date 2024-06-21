@@ -1,0 +1,1 @@
+Gripsy - tool for disabled people by OrthoDesign on Thingiverse: https://www.thingiverse.com/thing:496806
