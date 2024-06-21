@@ -1,0 +1,1 @@
+Improving fine motor skills, designing a 3D FDM printed orthosis to assist in the rehabilitation of individuals with hand spasticity by Piotrownik on Thingiverse: https://www.thingiverse.com/thing:6610431
